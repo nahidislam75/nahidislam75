@@ -1,0 +1,1 @@
+A self-motivated IT professional with huge knowledge and proﬁciency in JavaScript, HTML , react , CSS, ﬁrebase authentication , bootstrap and mobile responsive web development, as well as strong skills and ability in writing clean and eﬃcient code. I want to become a great asset to my work place .
